@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Generalogbuokiri1
+- 👋 Hi, I’m @Cjay_Ogbuokiri
 - 👀 I’m interested in Cyber Security 
 - 🌱 I’m currently learning Cybersecurity 
 - 💞️ I’m looking to collaborate on Cybersecurity 
